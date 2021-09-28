@@ -9,6 +9,7 @@ available for various roles.
 We carry 50+ professional roles and their related Cloud Ready Teams.
 <p></p>
 ## Lifetime Certified Partner Consortium
+<p></p>
 ✨ New Role Templates will be available 2022. ✨
 <p></p>
 Please contact blogtheristo@lifetime.fi to access newest tailored versions

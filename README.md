@@ -6,7 +6,7 @@
 
 Curriculum Vitae
 
-⭐ Project Manager 26102021
+⭐ Cloud Architect 120622 & Project Manager 26102021
 
 ⭐ Developer 15102021
 

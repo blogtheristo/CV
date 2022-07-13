@@ -6,12 +6,7 @@
 
 Curriculum Vitae
 
-⭐ Cloud Architect 120622 & Project Manager 26102021
-
-⭐ Developer 15102021
-
-⭐ Certificates
-
+⭐ [Risto CV](0722_Päärni_Risto_CV_eng_16.pdf)
 
 :star different talents are available from Lifetime Certified Partners 👱‍♀️
 
@@ -21,7 +16,6 @@ Curriculum Vitae
 
 ✨ New Role Templates ✨
 
-Please contact blogtheristo@lifetime.fi to access newest version
-of CV and other sales documentation.
+Please contact blogtheristo@lifetime.fi to access newest version of CV and other sales documentation.
 
  # Thank you !

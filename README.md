@@ -1,26 +1,30 @@
-# Hello
+# Hello Partner
 
 ## blogtheristo
 
-⭐  Risto Anton is available for new projects on-site.
+⭐  Hi there, Risto Anton is available for new projects on-site.
 
-You may find my latest CVs here
-<https://github.com/blogtheristo/CV>
-
-Pricing: all-inclusive;
-Availability: Please contant on LinkedIn or WhatsApp +358400319010
-Location: remote office Espoo, Finland, on-site
-Allocation: 100%
-Terms: Customer or IT2018 general terms.
-NDA: Yes
-Travel: Car available
-
+[You may find my latest CVs here](https://github.com/blogtheristo/CV)
 With kind wishes,
 Risto Anton
 Lifetime Group
 +358 400 319 010
 
 ## Assignment information
+
+Pricing: all-inclusive;
+
+Availability: Please contant on LinkedIn or WhatsApp +358400319010
+
+Location: remote office Espoo, Finland, on-site
+
+Allocation: from 50% up to 100%.
+
+Terms: Customer driven or IT2018 general terms.
+
+NDA: Yes, I have signed a NDA.
+
+Travel: Car available.
 
 Notice Period: one week after signing the contract.
 

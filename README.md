@@ -14,9 +14,9 @@ Lifetime Group
 
 Pricing: all-inclusive;
 
-Availability: Please contant on LinkedIn or WhatsApp +358400319010
+Availability: Please contact on LinkedIn or WhatsApp +358400319010
 
-Location: remote office Espoo, Finland, on-site
+Location: remote office Espoo, Finland,  or on-site (travel and accommodation costs exl.)
 
 Allocation: from 50% up to 100%.
 
@@ -40,7 +40,7 @@ Email id:
 
 Contact Number: +358 400 319 010
 
-Expected Day rate: starting at € 744 per day (including taxes).
+Expected Day rate: starting at € 745 per day (including taxes).
 
 Do you need work permit: No in the European Union.
 

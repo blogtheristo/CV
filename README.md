@@ -2,7 +2,9 @@
 
 ## blogtheristo
 
-⭐  Hi there, Risto Anton is available for new projects on-site.
+⭐  Hi there, Risto Anton is available for new projects
+ on-site, and
+ remotely.
 
 [You may find my latest CVs here](https://github.com/blogtheristo/CV)
 With kind wishes,

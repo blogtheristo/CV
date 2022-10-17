@@ -1,14 +1,13 @@
-# Hello Partner
+# Hello lifetime friend  
 
-## blogtheristo
+⭐ My name is Risto Anton. I am available for new projects
+ on-site, and remotely.
 
-⭐  Hi there, Risto Anton is available for new projects
- on-site, and
- remotely.
+[Please find my latest CV here](https://github.com/blogtheristo/CV)
+Also Contract Details, Roles etc.
 
-[You may find my latest CVs here](https://github.com/blogtheristo/CV)
-With kind wishes,
-Risto Anton
+Have a Great Day !
+Risto Anton (blogtheristo)
 Lifetime Group
 +358 400 319 010
 
@@ -57,8 +56,9 @@ Would you work on-site: Yes. Metro takes me there in 30 minutes.
 ## Lifetime Certified Partner Consortium
 
 ⭐ different talents are available from Lifetime Certified Partners 👱‍♀️
-
 ⭐ 50+ professional roles and their related Cloud Ready Teams.
 
-Please contact blogtheristo@lifetime.fi to access newest version of Talent CVs and sales Business Case.
-Thank you for contacting Risto Anton. Have a nice day!
+ risto.anton@lifetime.fi to access newest version of Talent CVs and sales
+ 
+## Business Cases
+Our Partner Consortium offers multiple business cases and solutions available to study with no cost. 

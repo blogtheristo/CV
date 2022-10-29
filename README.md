@@ -1,9 +1,14 @@
 # Hello lifetime friend  
 
-⭐ My name is Risto Anton. I am available for new projects
- on-site, and remotely.
+This is Risto Anton CV pages, I am available for new projects
+ on-site, and remotely.  
 
-[Please find my latest CV here](https://github.com/blogtheristo/CV)
+ Risto Anton thrives in three software project roles  
+⭐ Project Manager  
+⭐ Architect  
+⭐ Developer  
+
+[Please find my latest CV, Contract, and related data here](https://github.com/blogtheristo/CV)
 Also Contract Details, Roles etc.
 
 Have a Great Day !

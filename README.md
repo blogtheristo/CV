@@ -8,13 +8,14 @@ This is Risto Anton CV pages, I am available for new projects
 ⭐ Architect  
 ⭐ Developer  
 
-[Please find my latest CV, Contract, and related data here](https://github.com/blogtheristo/CV)
-Also Contract Details, Roles etc.
+[Please find my latest CV, Contract, and related data here](https://github.com/blogtheristo/CV)  
 
-Have a Great Day !
+[Book here](https://outlook.office365.com/owa/calendar/LifetimeGroup@lifetimeconsulting.eu/bookings/)  
+
+
 Risto Anton (blogtheristo)
 Lifetime Group
-+358 400 319 010
++358 400 319 010 weekdays 8-18 please prefer booking a free discussion slot.  
 
 ## Assignment information
 

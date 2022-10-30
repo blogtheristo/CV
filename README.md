@@ -4,14 +4,13 @@ This is Risto Anton CV pages, I am available for new projects
  on-site, and remotely.  
 
  Risto Anton thrives in three software project roles  
-⭐ Project Manager  
+⭐ [Senior Project Manager](https://github.com/blogtheristo/CV/blob/0a0b63e908ca2d4d1c4ee4d7e0e625cfca267988/22022_Professional%20Project%20Manager_esite.pdf)  
 ⭐ Architect  
 ⭐ Developer  
 
 [Please find my latest CV, Contract, and related data here](https://github.com/blogtheristo/CV)  
 
 [Book here](https://outlook.office365.com/owa/calendar/LifetimeGroup@lifetimeconsulting.eu/bookings/)  
-
 
 Risto Anton (blogtheristo)
 Lifetime Group
@@ -65,6 +64,7 @@ Would you work on-site: Yes. Metro takes me there in 30 minutes.
 ⭐ 50+ professional roles and their related Cloud Ready Teams.
 
  risto.anton@lifetime.fi to access newest version of Talent CVs and sales
- 
+
 ## Business Cases
-Our Partner Consortium offers multiple business cases and solutions available to study with no cost. 
+
+Our Partner Consortium offers multiple business cases and solutions available to study with no cost.

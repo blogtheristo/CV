@@ -46,9 +46,12 @@ Email id:
 
 Contact Number: +358 400 319 010
 
-Expected Day rate: starting at € 745 per day (including taxes).
+Expected Day Rate With Tax : starts with at € 793,60 eur per day (including taxes 24% VAT).
+(640 eur VAT 0%).
+- Travelling to the client site costs (Flight tickets, taxis) not included to price.
+- No daily allowance included [for example for its Sweden 63 eur per Day](https://www.veronmaksajat.fi/Palkka-ja-elake/Paivarahat/ulkomaan-paivarahat-2022/) when stay in the location / accommodation.
 
-Do you need work permit: No in the European Union.
+Do you need work permit: No in the European Union. Yes in the US.
 
 Have you worked with us before: Yes.
 

@@ -17,11 +17,14 @@ Risto Anton thrives in these roles (examples)
 ⭐ AR and Mobile Developer 
 
 
-[Please find my latest CV, Contract, and related data here](https://github.com/blogtheristo/CV)  
+[Please find my latest CV, Contract Terms, and related data here](https://github.com/blogtheristo/CV)  
 
-[Book here](https://outlook.office365.com/owa/calendar/LifetimeGroup@lifetimeconsulting.eu/bookings/)  
+[Book directly Risto Anton](https://outlook.office365.com/owa/calendar/LifetimeGroup@lifetimeconsulting.eu/bookings/)  
 
-Risto Anton (blogtheristo)
+[Discuss on AngelList with Risto Anton](https://angel.co/u/ristoanton) 
+
+Risto Anton Päärni
+A
 Lifetime Group
 +358 400 319 010 weekdays 8-18 please prefer booking a free discussion slot.  
 

@@ -2,8 +2,9 @@
 
 This is Risto Anton Career and CV Build Page 
 
-I am available for Cloud Architect and Developer, Member of New projects, Start-Up Board, Advisor, CEO positions.
-on-site, and remotely.  
+I am available for Cloud Architect and Developer, Member of New projects, Start-Up Board, Advisor, CEO positions.  
+
+Locations: on-site, and remote.  
 
 Risto Anton thrives in these roles (examples) 
   

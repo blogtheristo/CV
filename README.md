@@ -26,7 +26,8 @@ Risto Anton thrives in these roles (examples)
 
 Risto Anton Päärni
 Lifetime Group
-+358 400 319 010 weekdays 8-18 please prefer booking a free discussion slot.  
+Call after introduction on LinkedIn +358 400 319 010 weekdays 8-18 EEST time zone.   
+Please do prefer booking a free discussion slot.  Do not cold call if possible, thank you!
 
 ## Assignment information
 
@@ -41,7 +42,7 @@ Allocation: from 50% up to 100%.
 
 Terms: Customer chosen,  [IT2018 General Terms](https://it-ehdot.fi/term_preview/it2018-yse-english/).
 
-NDA: Yes, I have signed a NDA.
+NDA: Yes, can do a NDA.
 
 Travel: Car available.
 

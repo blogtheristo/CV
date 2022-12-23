@@ -25,7 +25,6 @@ Risto Anton thrives in these roles (examples)
 [Discuss on AngelList with Risto Anton](https://angel.co/u/ristoanton) 
 
 Risto Anton Päärni
-A
 Lifetime Group
 +358 400 319 010 weekdays 8-18 please prefer booking a free discussion slot.  
 
@@ -35,13 +34,12 @@ Pricing: all-inclusive;
 
 Availability: Please contact on LinkedIn or WhatsApp +358400319010
 
-Location: Remote Offices 
-:star2
-Espoo, Finland,  or on-site (travel and accommodation costs exl.)
+Location: Remote Office is in
+Espoo, Finland,  or on-site (no travel and accommodation costs, they are excluded.)
 
 Allocation: from 50% up to 100%.
 
-Terms: Customer driven or IT2018 general terms.
+Terms: Customer chosen,  [IT2018 General Terms](https://it-ehdot.fi/term_preview/it2018-yse-english/).
 
 NDA: Yes, I have signed a NDA.
 

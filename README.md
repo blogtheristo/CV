@@ -2,10 +2,10 @@
 
 This is Risto Anton Career and CV Build Page 
 
-I am available for new projects
+I am available for Cloud Architect and Developer, Member of New projects, Start-Up Board, Advisor, CEO positions.
 on-site, and remotely.  
 
-Risto Anton thrives in three roles 
+Risto Anton thrives in these roles (examples) 
   
   
 ⭐ [Senior Project Manager](https://github.com/blogtheristo/CV/blob/0a0b63e908ca2d4d1c4ee4d7e0e625cfca267988/22022_Professional%20Project%20Manager_esite.pdf)  
@@ -31,7 +31,9 @@ Pricing: all-inclusive;
 
 Availability: Please contact on LinkedIn or WhatsApp +358400319010
 
-Location: remote office Espoo, Finland,  or on-site (travel and accommodation costs exl.)
+Location: Remote Offices 
+:star2
+Espoo, Finland,  or on-site (travel and accommodation costs exl.)
 
 Allocation: from 50% up to 100%.
 

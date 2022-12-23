@@ -1,12 +1,21 @@
 # Hello lifetime friend  
 
-This is Risto Anton CV pages, I am available for new projects
- on-site, and remotely.  
+This is Risto Anton Career and CV Build Page 
 
- Risto Anton thrives in three software project roles  
+I am available for new projects
+on-site, and remotely.  
+
+Risto Anton thrives in three roles 
+  
+  
 ⭐ [Senior Project Manager](https://github.com/blogtheristo/CV/blob/0a0b63e908ca2d4d1c4ee4d7e0e625cfca267988/22022_Professional%20Project%20Manager_esite.pdf)  
-⭐ Architect  
-⭐ Developer  
+
+
+⭐ Cloud Architect / Backend Engineer
+
+
+⭐ AR and Mobile Developer 
+
 
 [Please find my latest CV, Contract, and related data here](https://github.com/blogtheristo/CV)  
 
